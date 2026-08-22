@@ -32,7 +32,7 @@
 
 ## 🌐 Connect with Me  
 - [LinkedIn](https://www.linkedin.com/in/rajdeekshith-tula)  
-- [Twitter](https://twitter.com/RAJDEEKSHITH07)  
+- [Twitter](https://twitter.com/Rajdeekshith)  
 
 ---
 
